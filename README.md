@@ -18,3 +18,7 @@ For this task, I worked on a collaborative design workflow, ensuring seamless te
 
 OUTPUT:
 
+![Image](https://github.com/user-attachments/assets/acdbb3fb-5b59-447e-a20a-51edee8afedb)
+
+![Image](https://github.com/user-attachments/assets/a7e16f59-fa7c-4a62-9df7-ed5ba2240fa8)
+
